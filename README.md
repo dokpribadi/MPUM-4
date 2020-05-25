@@ -1,2 +1,2 @@
 # MPUM 4
- okeh belajar
+ seangkatan berlima yang sering kebulet, dihujat, diterpa badai perjuangan hehe 
